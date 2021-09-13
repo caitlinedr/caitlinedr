@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @caitlinedr
+- 📫 How to reach me: caitlinedr@gmail.com
+- 👩‍💻 CPA => software engineer
